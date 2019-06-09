@@ -1,2 +1,2 @@
 # ytandchill
-im gay
+https://github.com/AverageAlanYT/ytandchill.git
