@@ -1,2 +1,1 @@
 # ytandchill
-im gay
